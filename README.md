@@ -7,6 +7,11 @@
 </div>
 
 <p align="center">name</p>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/ef6193729988b1bf78f9bb51ca756f3b/27135c145aba7e3a-3c/s250x400/5ff66f19ce3743eec71784a2cd1d54730f21ed7b.gifv">
+</div>
+
 <p align="center">text here</p>
 <p align="center">more text here</p>
 
