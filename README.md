@@ -10,6 +10,10 @@
   <img src="https://64.media.tumblr.com/240b5f7e0ec3147353a7e4b16ff4872f/6869b527f3370e87-f2/s2048x3072/e91defe5c6d333af93207f5536cf858338aeef36.pnj">
 </div>
 
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/721e13d9-487d-4545-be85-aa5e3df78834">
+</div>
+
 <p align="center">name</p>
 
 <div align="center">
