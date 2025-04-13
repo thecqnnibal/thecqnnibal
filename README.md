@@ -14,7 +14,7 @@
   <img src="https://github.com/user-attachments/assets/721e13d9-487d-4545-be85-aa5e3df78834">
 </div>
 
-<p align="center">name</p>
+<p align="center">ᵥᵢₙₙ | ᵥᵢₙₙy | ᵥᵢₙ</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/ef6193729988b1bf78f9bb51ca756f3b/27135c145aba7e3a-3c/s250x400/5ff66f19ce3743eec71784a2cd1d54730f21ed7b.gifv">
@@ -24,8 +24,8 @@
   <img src="https://64.media.tumblr.com/2568e7d82709ead76bf1f34452ec9239/bedb4ec6cf2ce37d-62/s2048x3072/eacfe82abcf88d8998ddbbb12c43eb2dbcbae703.pnj">
 </div>
 
-<p align="center">text here</p>
-<p align="center">more text here</p>
+<p align="center">𝔥𝔢/𝔥𝔦𝔪 ⭒ 𝔪𝔦𝔫𝔬𝔯 ⭒ 𝔞𝔩𝔞𝔰𝔱𝔬𝔯 𝔨𝔦𝔫𝔫𝔦𝔢 ⭒ 𝔢𝔞𝔰𝔦𝔩𝔶 𝔬𝔳𝔢𝔯𝔴𝔥𝔢𝔩𝔪𝔢𝔡 ⭒ 𝔲𝔰𝔲𝔞𝔩𝔩𝔶 𝔦𝔫 𝔠𝔬𝔰𝔭𝔩𝔞𝔶 ⭒ 𝔞𝔩𝔞𝔰𝔱𝔬𝔯 𝔦𝔰 𝔪𝔢 ⭒ 𝔣𝔞𝔴𝔫 𝔩𝔬𝔳𝔢𝔯 ⭒ :3 || 𝔪𝔞𝔦𝔫 𝔰𝔥𝔦𝔭𝔰! ;; 𝔯𝔞𝔡𝔦𝔬𝔞𝔭𝔭𝔩𝔢/𝔯𝔞𝔡𝔦𝔬𝔰𝔱𝔞𝔱𝔦𝔠</p>
+<p align="center">"𝔄𝔩𝔞𝔰𝔱𝔬𝔯! 𝔓𝔩𝔢𝔞𝔰𝔲𝔯𝔢 𝔱𝔬 𝔟𝔢 𝔪𝔢𝔢𝔱𝔦𝔫𝔤 𝔶𝔬𝔲 𝔰𝔦𝔯, 𝔮𝔲𝔦𝔱𝔢 𝔞 𝔭𝔩𝔢𝔞𝔰𝔲𝔯𝔢. ℑ𝔱'𝔰 𝔫𝔦𝔠𝔢 𝔱𝔬 𝔣𝔦𝔫𝔞𝔩𝔩𝔶 𝔭𝔲𝔱 𝔞 𝔣𝔞𝔠𝔢 𝔱𝔬 𝔱𝔥𝔢 𝔫𝔞𝔪𝔢. 𝔜𝔬𝔲 𝔞𝔯𝔢 𝔪𝔲𝔠𝔥 𝔰𝔥𝔬𝔯𝔱𝔢𝔯 𝔦𝔫 𝔯𝔢𝔞𝔩 𝔩𝔦𝔣𝔢!"</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/2a0fae33b4e8a6b0f28733a54eb4db51/bedb4ec6cf2ce37d-39/s2048x3072/fe0db993298fd8790bb802dd4337c096a006784e.pnj">
