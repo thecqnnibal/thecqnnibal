@@ -16,8 +16,16 @@
   <img src="https://64.media.tumblr.com/ef6193729988b1bf78f9bb51ca756f3b/27135c145aba7e3a-3c/s250x400/5ff66f19ce3743eec71784a2cd1d54730f21ed7b.gifv">
 </div>
 
+<div align="center">
+  <img src="https://64.media.tumblr.com/2568e7d82709ead76bf1f34452ec9239/bedb4ec6cf2ce37d-62/s2048x3072/eacfe82abcf88d8998ddbbb12c43eb2dbcbae703.pnj">
+</div>
+
 <p align="center">text here</p>
 <p align="center">more text here</p>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/2a0fae33b4e8a6b0f28733a54eb4db51/bedb4ec6cf2ce37d-39/s2048x3072/fe0db993298fd8790bb802dd4337c096a006784e.pnj">
+</div>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/4c0fbdb617de0a727198bd67bb55498b/af1d2bd09d335007-c5/s640x960/128e15ce5c977d219cfa80ff80c22352b117720b.pnj">
