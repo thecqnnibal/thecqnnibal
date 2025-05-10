@@ -14,7 +14,7 @@
   <img src="https://github.com/user-attachments/assets/721e13d9-487d-4545-be85-aa5e3df78834">
 </div>
 
-<p align="center">𝔳𝔦𝔫𝔫 | 𝔳𝔦𝔫𝔫𝔶 | 𝔳𝔦𝔫</p>
+<p align="center">νιηη/νιηηу/αℓαѕтσя/αℓ</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/ef6193729988b1bf78f9bb51ca756f3b/27135c145aba7e3a-3c/s250x400/5ff66f19ce3743eec71784a2cd1d54730f21ed7b.gifv">
